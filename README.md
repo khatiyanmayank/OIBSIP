@@ -1,1 +1,1 @@
-https://khatiyanmayank.github.io/OIBSIP/
+https://khatiyanmayank.github.io/OIBSIP/project1
